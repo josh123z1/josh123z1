@@ -44,4 +44,4 @@ I ran regression on 4,000+ households and about 5,400 podcasts. Food spending wa
 
 ## 📫 Get in touch
 
-[LinkedIn](https://linkedin.com/in/joshua-warren-fernandes) · [Email](mailto:joshuafernandes1702@gmail.com)
+[LinkedIn](www.linkedin.com/in/joshua-warren-fernandes-314b06280) · [Email](mailto:joshuafernandes1702@gmail.com)
